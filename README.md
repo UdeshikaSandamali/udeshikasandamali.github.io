@@ -1,4 +1,4 @@
-# 🌟 Paththuwe Arachchige Udeshika Sandamali - Portfolio
+# 🌟 Paththuwe Arachchige Udeshika Sandamali
 
 ### 👤 Personal Data
 - **Name**: Paththuwe Arachchige Udeshika Sandamali
